@@ -6,6 +6,9 @@
 > - [[백년전쟁 part1] 두 얼굴의 이승만(전체동영상-유튜브)](https://www.youtube.com/watch?v=idbhQx10-9A)  
 > - [[백년전쟁 SE] 프레이저 보고서 1부(전체동영상-유튜브)](https://www.youtube.com/watch?v=VPmU4Ph-3LQ)
 
+### 2018.06.02
+
+
 ### 2018.03.12
 
 > #### 넘치는 정보에서 살아남기, 어떻게 읽어야 할까?  
